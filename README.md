@@ -1,4 +1,4 @@
-### Olá Gamers! Eu sou o JH iaaaaaaaahoooooooooooooo!!!!
+
 
 Tenho 20 anos, moro em Osasco SP e atualmente estou cursando Ciência da Computação, estou em busca da minha primeira experiência profissional.
 
