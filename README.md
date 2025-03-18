@@ -7,9 +7,11 @@ Tenho 20 anos, moro em Osasco SP e atualmente estou cursando Ciência da Computa
 
 
 ## 📩 Links:
- Meu email: jotaaga.academico822154533@gmail.com
+Meu email: jotaaga.academico822154533@gmail.com
 
 Meu LinkedIn: https://www.linkedin.com/in/jo%C3%A3o-henrique-pacheco-de-oliveira-21b904205/
+
+Meu Portifólio:
 <div>
 </div>
 
