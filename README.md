@@ -1,4 +1,4 @@
-Tenho 20 anos, moro em Osasco SP e atualmente estou cursando Ciência da Computação, estou em busca da minha primeira experiência profissional.
+Tenho 21 anos, moro em Osasco SP e atualmente estou cursando Ciência da Computação, estou em busca da minha primeira experiência profissional.
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=16&duration=3000&pause=1000&color=20F700&center=true&vCenter=true&width=435&lines=Software+Development!;Bem+vindo!;Fique+a+vontade+para+me+contatar!;Entra+aí+no+meu+portfólio!)](https://git.io/typing-svg)
 
